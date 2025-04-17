@@ -1,6 +1,6 @@
 **Security Accelerationism**
 
-![motoko kusanagi ghost in the shell (500×267)](https://github.com/user-attachments/assets/6eb11767-ecdf-453a-9559-0ee2a87b136a)
+![klu-eacc-logo](https://github.com/user-attachments/assets/b3023fc8-baf8-4651-9794-dc26a75ccfa6)
 
 Effective Accelerationism is a philosophical and political movement that emerged in the 1990s and 2000;
 
